@@ -1,2 +1,2 @@
-# My-Programming-Notes-Never.-Stop.-Learning
+# My-Programming-Notes
  Never. Stop. Learning.     (also, "...strength before weakness :3 "
